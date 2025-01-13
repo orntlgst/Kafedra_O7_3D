@@ -1,1 +1,0 @@
-# Kafedra_O7_3D
